@@ -1,0 +1,1 @@
+hi if you installed rain pls create folder "scripts" thx for downloading!
